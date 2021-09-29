@@ -1,4 +1,4 @@
 # ibidi-firabase-discord-moderation
-moderasyon botum mu? taaaa kendisi sizlerle 08.08.2021
+moderasyon botum mu? taaaa kendisi sizlerle
 
-YILDIZ VE KİMENE MAYMUN ARKADAŞLARIMA SELAM :)
+https://discord.gg/Jqp65bHryP discord sunucumda gelinde sohbet edelim :)
